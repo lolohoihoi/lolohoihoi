@@ -1,0 +1,2 @@
+# lolohoihoi
+This is a story that would like to bring you message about love, sharing and reminiscing. Everyone has peace and sharing in his heart, and hoping for sharing all happiness to everyone. They have pure heats with sunshine and respectful. A positive attitude that can purify every single unhappy thing. We want to give you a message that is simple to be happy. You don’t need to prejudice. Treating people sincerely and cherishing our beautiful world.
